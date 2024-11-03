@@ -1,1 +1,1 @@
-Huli ya nadelal
+Huli ya nadelal opyat
